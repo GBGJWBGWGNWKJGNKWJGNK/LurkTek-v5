@@ -1,1 +1,1 @@
-Created By Lurk & Reaper # Lurktek v-5
+Created By Lurk & Reaper 
